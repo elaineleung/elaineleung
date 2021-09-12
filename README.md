@@ -15,4 +15,4 @@
 
 I'm a freelancer open for work and collabs. GitHub under construction, but more to come!
 
-How to reach me: https://twitter.com/eclleung
+How to reach me: https://twitter.com/elaineclleung
